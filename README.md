@@ -1,6 +1,6 @@
 Jiyun Song (she/her/her)
 
-Undergraduate student in Sogang University (Mar. 2019. - Jul. 2025)
+Undergraduate student in Sogang University (Mar. 2019. - Aug. 2025)
 
 Majoring in 'Chemical and Biomolecular Engineering' and 'Computer Science and Engineering'
 
